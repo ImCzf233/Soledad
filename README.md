@@ -47,7 +47,7 @@
 ![avatar](https://raw.githubusercontent.com/xiaoyuan151/Soledad/main/images/avatar21.png)\
 ![avatar](https://raw.githubusercontent.com/xiaoyuan151/Soledad/main/images/avatar22.png)\
 ![avatar](https://raw.githubusercontent.com/xiaoyuan151/Soledad/main/images/avatar23.png)\
-![avatar](https://raw.githubusercontent.com/xiaoyuan151/Soledad/main/images/avatar24.png)\
+![avatar](https://raw.githubusercontent.com/xiaoyuan151/Soledad/main/images/avatar24.png)
 
 </details>
 
